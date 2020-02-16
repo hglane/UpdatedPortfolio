@@ -1,2 +1,0 @@
-# UpdatedPortfolio
-Updated Professional Portfolio
